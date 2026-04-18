@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.imgur.com/https://imgur.com/a/PjuyheU.jpg" width="100%" alt="DARK GENESIS">
+  <img src="https://imgur.com/a/PjuyheU.jpg" width="100%" alt="DARK GENESIS">
 </p><h1 align="center">☠️ DARK GENESIS EMPIRE¹¹</h1><p align="center">
   <b>CONTROL IS NOT GIVEN — IT IS TAKEN.</b>
 </p><p align="center">
